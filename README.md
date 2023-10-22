@@ -1,0 +1,1 @@
+Zadania z laboratorium 2 na TWWAI
